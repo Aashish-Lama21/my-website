@@ -1,1 +1,0 @@
-# Aashish Lama's-website
